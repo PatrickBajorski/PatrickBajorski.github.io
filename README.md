@@ -1,5 +1,3 @@
-#### Link do mojego profilu GitHub [PatrickBajorski](https://github.com/PatrickBajorski)
-
 ## A to moje CV:
                                                        CV  
                                                 Patrick Bajorski
